@@ -1,4 +1,4 @@
-## Ola! 🙋‍♂️Me chamo Rodrigo e Serudo Bem Vindo 🪂
+## Ola! 🙋‍♂️Me chamo Rodrigo Serudo e seja Bem Vindo 🪂
 
 
 <!-- Dropdown -->
